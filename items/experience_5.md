@@ -1,1 +1,3 @@
-Leaving my parents for the first time
+### Leaving My Parents For The First Time
+
+I had to leave my parents for the first time and travel on my own because I was moving to Canada for school. I left my parents in April of 2021 and I liked the fact that I could be independent. My favourite memory was meeting my friend in the school's residence that I had been talking to online before I came. I did not enjoy the fact that I had to leave my parents and now live on my own for the first time. I will give this experience a B, it was good!

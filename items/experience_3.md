@@ -1,1 +1,3 @@
-Volunteering at The Outpouring Canada
+### Volunteering At The Outpouring Canada
+
+I volunteered at The Outpouring Canada as a photographer among other creatives on the team. This took place in the summer of 2023 and I liked it because it was a good learning experience for me and an opportunity to meet new people. My favourite memory was being able to worship God in an environment with other Christians, but it was not the best experience because I was discriminated against within my team. <br />I will rate this experience a C because it was not the best but was also not the worst!

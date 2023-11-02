@@ -1,1 +1,3 @@
-Living in Egypt
+### Living In Egypt
+
+I moved to Egypt because of my dad's work and schooled there for 3 years before I had to return back hoome. I moved there with my family in 2008. I loved that I was able to experience a different culture and meet new people and because I made so many memories, my favourite was everytime I spent with my best friends in school and at the park. The only thing I didn't enjoy was when I had to leave 3 years after, but overall I will give this experience an A. It was a great experience!   

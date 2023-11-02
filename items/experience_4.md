@@ -1,1 +1,3 @@
-My first job
+### My First Job
+
+My first job was as an International Student Leader at Laurier International in my second year on the Laurier Brantford campus. I loved the condusive and inclusive work environment that was created for all employees and my favourite memory was organizing and performing at the Multicultural Gala at the end of the year. I was having some issues at the start because I was the only one who was doing most of the work before more people joined the team. I rate this experience a B, it was good! 
